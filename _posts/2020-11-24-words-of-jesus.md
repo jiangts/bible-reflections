@@ -1,12 +1,11 @@
 ---
-layout: page
-title: About
-permalink: /about/
+layout: post
+title:  Words of Jesus Devotional Study
+categories: [words-of-jesus]
+excerpt: 
 ---
 
-## Words of Jesus Devotional Study
-
-This is a devotional study that I'm doing on the life and words of Jesus.
+This is the start to a devotional study that I'm doing on the life and words of Jesus.
 
 I'm not following a devotional book or guide for this study: just using a NASB study Bible, an NIV study Bible and their various study helps, and Vine's expository dictionary for reference. And most importantly, praying that each time I open Scripture the Spirit would open my heart to truly hear His words to me.
 
@@ -49,3 +48,10 @@ that I may
 Lord Jesus!
 ```
 
+
+
+
+
+
+
+Note: at first I hoped to "complete" this study in a couple months. But then a friend reminded me: it takes a lifetime to know Jesus!  So these posts may be very sparse throughout the years.  But hopefully they will still come, Lord willing.
