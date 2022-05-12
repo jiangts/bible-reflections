@@ -14,29 +14,29 @@ excerpt:
 
 <pre>
 Who was I,  
-  that You would be my kinsman-redeemer?
+	that You would be my kinsman-redeemer?
 
 I was not kin,  
-  but a foreigner  
-  hailing from an enemy nation.
+	but a foreigner  
+	hailing from an enemy nation.
 
 What character had I before You?  
-  Was there a pleasing fragrance in my name,  
-  that you should declare,  
-  "May I AM bless you?"
+	Was there a pleasing fragrance in my name,  
+	that you should declare,  
+	"May I AM bless you?"
 
 To whom had I shown hesed,  
-  that I would be worthy to receive it?
+	that I would be worthy to receive it?
 
 
 But You spotted me in my desolate place.  
 And You called out, with no hesitation.
 
 I had no daring plan  
-  to woo Your love  
+	to woo Your love  
 But You,  
-  You heeded the Father's daring plan  
-  to woo mine.
+	You heeded the Father's daring plan  
+	to woo mine.
 
 You ran to me,  
 leaving the riches of a palace  
@@ -52,10 +52,10 @@ You spoke tenderly upon my heart
 	until I was gentled before You.
 
 You refused my offer  
-  to be a slave in Your house  
+	to be a slave in Your house  
 But You elevated me through marriage  
-  that I should no longer call You my master,  
-  but instead, my husband.
+	that I should no longer call You my master,  
+	but instead, my husband.
 
 
 Jesus, thank You,  
@@ -63,17 +63,17 @@ Jesus, thank You,
 and You are my kinsman redeemer.
 
 Jesus, thank You,  
- 	for sharing the pleasing fragrance of Your name,  
-  and the blessings of I AM.
+	for sharing the pleasing fragrance of Your name,  
+	and the blessings of I AM.
 
 Jesus, thank You,  
- 	that You have not stopped showing Your hesed  
- 	all the days of my life  
- 	and in me You are well pleased.
+	that You have not stopped showing Your hesed  
+	all the days of my life  
+	and in me You are well pleased.
 
 Jesus, thank You,  
-  that though I am no Ruth,  
-  Your <strong>hesed</strong> has the last word.
+	that though I am no Ruth,  
+	Your <strong>hesed</strong> has the last word.
 </pre>
 
 
