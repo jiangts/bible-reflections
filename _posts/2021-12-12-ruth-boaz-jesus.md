@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  I am no Ruth
+title: I am no Ruth
 categories: [Ruth, poetry]
 excerpt: 
 ---
