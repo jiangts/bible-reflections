@@ -38,9 +38,31 @@ I'm following Waltke's Proverbs lectures on BiblicalTraining.org. These are note
 
 
 
-- Key to understanding the book is understanding the meaning of the Hebrew words -- how they think
+> the Book of Proverbs remains the model curriculum for humanity, especially youth, to learn social skills in relation to God and others. As such, the Book of Proverbs invites serious study to teach and to understand its wisdom in a world characterised by mediocrity, superficiality and blatant foolishness.
+>
+> There will be a lecture on safe guarding wisdom but the safe guard is being able to read Proverbs(!)
+>
+> The key to the book is the fear of the Lord and how to develop a fear of the Lord. Chapter 2 of Proverbs is very fundamental in understanding Proverbs and perhaps the most important chapter in the book.
+>
+> The woman of the night in chapter seven stands in contrast to wisdom of women who stand in daylight at the city gate; so you have the woman of the night who operates secretively and stays in the dark; it is death and then you have the woman of wisdom.
+
+
+
+> Note that the Proverbs are written in a way to develop a way of thinking; you have to think about them. It is a way of developing your mind. It is not as simple as it appears. It is more complex than that. For example in Proverbs 10:2b, ‘but righteousness delivers from death.’ Whose death? Yours death or someone else’s death or both; there is an ambiguity built into them that makes you explore it.
+
+
+
+
+
+- Key to understanding the book is understanding the meaning of the original Hebrew words -- it is how they think
   - e.g. the difficulty of translating Psalm 1: "does not stand in the way of sinners..."
     - translations differ by the target audience
   - "accredited grammatical historical approach"
     - E.g. 1 Sam 9:9 — seer (ra’ah) and prophet (nabiy). The text defines what a prophet is, the Bible defines terms it thinks the audience doesn't know.
 
+
+
+- Memory verses:
+  - Proverbs 1:7, ‘the fear of the Lord is the beginning of knowledge: but fools despise wisdom and instruction.’
+  - Proverbs 3:5-6, ‘trust in the Lord with all you heart; and lean not on your own understanding. In all your ways acknowledge him, and he will direct your paths.’
+  - Proverbs: 4:7, ‘wisdom is the principal thing; therefore get wisdom: and whatever you acquire, acquire understanding!’
