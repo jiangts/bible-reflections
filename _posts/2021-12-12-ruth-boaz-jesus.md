@@ -12,7 +12,6 @@ excerpt:
 
 
 
-```txt
 Who was I, 
   that You would be my kinsman-redeemer?
 
@@ -27,6 +26,8 @@ What character had I before You?
 
 To whom had I shown hesed,
   that I would be worthy to receive it?
+
+
 
 
 But You spotted me in my desolate place. 
@@ -57,6 +58,8 @@ But You elevated me through marriage
   that I should no longer call You my master, 
   but instead, my husband.
 
+
+
 Jesus, thank You, 
 	that I am Yours,
 and You are my kinsman redeemer.
@@ -73,7 +76,6 @@ Jesus, thank You,
 Jesus, thank You,
   that though I am no Ruth, 
   Your **hesed** has the last word.
-```
 
 
 
