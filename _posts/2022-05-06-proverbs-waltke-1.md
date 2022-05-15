@@ -5,6 +5,8 @@ categories: [Proverbs, Waltke]
 excerpt: 
 ---
 
+[Post is a Work in Progress]
+
 I've been at PBCC for over a year now, and I've had the amazing privilege of studying Scripture with many strong Bible teachers.
 
 - Romans, Ephesians, Philippians, and much more with the Lawry's
