@@ -49,7 +49,7 @@ As I pondered this, my heart nudged me towards *Were You There?* So I took a wal
 
 The first time, I pondered its ugliness and shame; trying not to look away in spite of its intensity. But to fixate on the crucifixion, the cross, the grave. To re-live it, to re-member its reality and its impact.
 
-The second time, I realized I was there. I crucified my Lord. I superimposed the re-membering of my sin with the re-membering of Jesus' crucifixion. I saw those made in God's image being trampled by me, and then I saw the One who perfectly imaged God being trampled. I saw me nailing Him to the cross; to be scorned, held powerless, for all to see. I saw Him laid in that tomb. I saw the seeming finality of death. I was there.
+The second time, I realized I was there. I crucified my Lord. I superimposed the re-membering of my sin with the re-membering of Jesus' crucifixion. I saw those made in God's image being trampled by me, and then I saw the One who perfectly imaged God being trampled. I saw me nailing Him to the cross; to be scorned, held powerless, for all to see. I saw Him laid in that tomb. I saw the seeming finality of death. I even sensed a tinge of solemn remorse at such wicked actions, but no use; now He was dead. I was there.
 
 The third time, I wept. *Sometimes it causes me to tremble, tremble, tremble*. I realized the question "were you there...?" is something of a confession. A confession that I often live as if I wasn't there. A confession that I often don't look upon the cross. A confession that I don't often enough experience its power. But when I do look, and dwell, and receive, I tremble. For His tree of death has become my tree of life.
 
