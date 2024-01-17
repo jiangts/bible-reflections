@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  Words of Jesus Devotional Study
-categories: [Words of Jesus, Gospels]
+categories: [Gospels]
 excerpt: 
 ---
 

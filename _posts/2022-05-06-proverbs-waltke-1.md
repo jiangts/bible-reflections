@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  Studies in the Proverbs
-categories: [Proverbs, Waltke]
+categories: [Proverbs]
 excerpt: 
 ---
 
