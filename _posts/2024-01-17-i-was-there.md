@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "I was there"
-categories: []
+categories: [hymns]
 excerpt: 
 ---
 
