@@ -8,7 +8,7 @@ excerpt:
 
 When I was younger I couldn't understand the song *Were you there*. Was it a rhetorical question? Of course I wasn't there.
 
-<iframe src="https://www.youtube-nocookie.com/embed/oKscSEmm8gU?si=LtIWD1JfOWGMWGnB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen style="width: 100%"></iframe>
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/oKscSEmm8gU?si=LtIWD1JfOWGMWGnB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen style="width: 100%"></iframe>
 
 I took it as a way of inviting the worshipper into the scenes of the cross. Each verse a word-mural to ponder. Envisioning torment, ugliness, repulsiveness, and love. Imagining we were there. Which, when paired with the marvelous (dare I say Spirit-inspired) music, makes the imagery take wings in our hearts and certainly stirs up that imagination within us.
 
